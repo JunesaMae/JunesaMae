@@ -32,9 +32,8 @@ I'm a **Licensed Customs Broker** with solid experience in **e-commerce operatio
 ---
 
 ### 🌐 Connect With Me
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-blue?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/junesa-mae-leones-076789389/))  
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-blue?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/junesa-mae-leones-076789389/)  
 📧 **Email:** junesamaeleones@gmail.com  
-
 ---
 
 ### ⚡ Fun Fact
